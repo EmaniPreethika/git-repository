@@ -5,3 +5,6 @@
 
 [invoice -office chair.pdf](https://github.com/user-attachments/files/15740114/invoice.-office.chair.pdf)
 [invoice.pdf](https://github.com/user-attachments/files/15740116/invoice.pdf)
+
+![WhatsApp Image 2024-09-12 at 9 08 05 PM](https://github.com/user-attachments/assets/a5880b65-b4f9-4442-b597-01dfe4def7f0)
+![WhatsApp Image 2024-09-12 at 9 08 06 PM](https://github.com/user-attachments/assets/092070a2-2f60-4ce7-8e4a-bfa579014538)
