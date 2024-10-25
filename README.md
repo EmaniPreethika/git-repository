@@ -8,3 +8,7 @@
 
 ![WhatsApp Image 2024-09-12 at 9 08 05 PM](https://github.com/user-attachments/assets/a5880b65-b4f9-4442-b597-01dfe4def7f0)
 ![WhatsApp Image 2024-09-12 at 9 08 06 PM](https://github.com/user-attachments/assets/092070a2-2f60-4ce7-8e4a-bfa579014538)
+
+Uploading Emani_Preethika Resume.pdf…
+
+[Uploading Emani_Preethika Resume.pdf…]()
